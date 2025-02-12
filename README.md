@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @wang-yanzhen
 - 👀 I’m interested in ancient China/ancient Chinese
-- 🌱 I’m currently learning Fince. Banking, 
+- 🌱 I’m currently learning Finance. Banking, 
 - 💞️ I’m looking to collaborate on ... no, nothing
 - 📫 How to reach me:  @QLQWPY on twitter,@QLQWOY on Telegram
 
