@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @wang-yanzhen
+- 👋 Hi, I’m @wang-yz
 - 👀 I’m interested in ancient China/ancient Chinese
 - 🌱 I’m currently learning Finance. Banking, 
 - 💞️ I’m looking to collaborate on ... no, nothing
